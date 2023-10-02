@@ -12,4 +12,4 @@ pedro.ferrer.souza@escola.pr.gov.br
 
 ### @allblack_044
 
-![](https://media0.giphy.com/media/3o7qDSNQmBnjMi0Rs4/200w.webp?cid=ecf05e472ywz69pn5n8gnnfqppoogmqjv3gefunt8ynmsjx3&ep=v1_gifs_search&rid=200w.webp&ct=g)
+![](https://us-tuna-sounds-images.voicemod.net/1634ba88-3b88-499a-8a7f-258a245e4084-1688596299925.png)
