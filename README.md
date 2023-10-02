@@ -8,8 +8,8 @@ aluno Pedro Ferrer
 
 ### Para entrar em ctt comigo
 
-─ pedro.ferrer.souza@escola.pr.gov.br
+pedro.ferrer.souza@escola.pr.gov.br
 
-─ @allblack_044
+### @allblack_044
 
-![](https://preview.redd.it/africano-premium-v0-uzld6hdwzwib1.jpg?width=640&crop=smart&auto=webp&s=b2035c9b27f5001c151ad699714e429a5fbf31fd)
+![](https://media0.giphy.com/media/3o7qDSNQmBnjMi0Rs4/200w.webp?cid=ecf05e472ywz69pn5n8gnnfqppoogmqjv3gefunt8ynmsjx3&ep=v1_gifs_search&rid=200w.webp&ct=g)
