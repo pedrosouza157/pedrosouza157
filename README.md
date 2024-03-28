@@ -2,7 +2,7 @@
 
 aluno Pedro Ferrer
 
-─ aluno do 1ºano A
+─ aluno do 2ºano B
 
 ─ Estou estudando na Alura
 
@@ -10,6 +10,6 @@ aluno Pedro Ferrer
 
 pedro.ferrer.souza@escola.pr.gov.br
 
-### @allblack_044
+### @og.black_044
 
 ![](https://us-tuna-sounds-images.voicemod.net/1634ba88-3b88-499a-8a7f-258a245e4084-1688596299925.png)
